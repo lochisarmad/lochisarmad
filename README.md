@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @lochisarmad
 - 👀 I’m professional graphic designer.
 - 🌱 I’m currently learning information technology (undergraduate).
-- 💞️ I’m looking to collaborate on online work.
+- 💞️ Worked in pef also as a graphic designer.
 - 📫 V.President of pakistan engineers form.
 - ✨ Worked in google developers student club as lead graphic designer.
 - 💸 Networking.
